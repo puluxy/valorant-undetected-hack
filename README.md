@@ -2,7 +2,9 @@
 Valorant Undetected Hack | Valorant Algılanamaz Hile 
 
 
-#Setup
+#Setup - Kurulum
+
+Setup Video - Kurulum Videosu: soon..
 
 First, if you want, set it from config.json.
 
