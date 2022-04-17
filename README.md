@@ -1,6 +1,7 @@
 # valorant-undetected-hack
 Valorant Undetected Hack | Valorant Algılanamaz Hile 
 
+new features added! updated
 
 #Setup - Kurulum
 
