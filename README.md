@@ -1,7 +1,6 @@
 # valorant-undetected-hack
 Valorant Undetected Hack | Valorant Algılanamaz Hile 
 
-https://dosya.co/avof92sam13d/valorant-undetected-hack.rar.html Updated Version!
 
 #Setup - Kurulum
 
