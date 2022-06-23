@@ -1,4 +1,6 @@
-# valorant-undetected-hack
+En Son Sürümüne Ulaşmak İçin releases sayfasını kontrol edin / Check the releases page to get the latest version 
+
+
 Valorant Undetected Hack | Valorant Algılanamaz Hile 
 
 
